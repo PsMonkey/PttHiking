@@ -44,3 +44,8 @@
 |:--------------:|---------|------|:------:|
 | 分開不是誰不好 | https://www.youtube.com/watch?v=YzevNaeUiHc | 陽明山 | level5566 |
 | 被風吹散的人們 | https://www.youtube.com/watch?v=LBUxl6SHSfo | 陽明山 | level5566 |
+
+
+----------------------------------------------------------------------
+
+<a rel="license" href="http://creativecommons.org/licenses/by-sa/4.0/"><img alt="創用 CC 授權條款" style="border-width:0" src="https://i.creativecommons.org/l/by-sa/4.0/88x31.png" /></a><br />
