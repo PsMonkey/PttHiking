@@ -7,6 +7,7 @@
 
 | 歌名 | MV 網址 | 地點 | 貢獻者 |
 |:----:|---------|------|:------:|
+| 嚮往 | https://www.youtube.com/watch?v=EToukUQUcYM | 陽明山 | level5566 |
 | 天空 | https://www.youtube.com/watch?v=hmyEkTioX5E | 陽明山 | level5566 |
 | 童夢 | https://www.youtube.com/watch?v=j041OJIvLDo | 陽明山 | level5566 |
 
