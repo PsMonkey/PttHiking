@@ -29,6 +29,7 @@
 | 關鍵詞 | https://www.youtube.com/watch?v=YFr6p7vB9hc | 陽明山 | level5566 |
 | 夢裡花 | https://www.youtube.com/watch?v=JMQOlI5-dRU | 陽明山 | level5566 |
 | 愛麗絲 | https://www.youtube.com/watch?v=UfcoCHLMQOI | 陽明山 | level5566 |
+| 這是愛 | https://www.youtube.com/watch?v=Yjg0l8SB38o | 太平山 | level5566 |
 
 
 四字部
