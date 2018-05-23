@@ -38,6 +38,7 @@
 |   歌名   | MV 網址 | 地點 | 貢獻者 |
 |:--------:|---------|------|:------:|
 | 平凡日落 | https://www.youtube.com/watch?v=Q44WaoqlU40 | 陽明山 | level5566 |
+| 言不由衷 | https://www.youtube.com/watch?v=k8jAqe9QZ7I | 日本 | level5566 |
 
 
 五字部
@@ -56,6 +57,7 @@
 | 分開不是誰不好 | https://www.youtube.com/watch?v=YzevNaeUiHc | 陽明山 | level5566 |
 | 被風吹散的人們 | https://www.youtube.com/watch?v=LBUxl6SHSfo | 陽明山 | level5566 |
 | 聽見下雨的聲音 | https://www.youtube.com/watch?v=F2uX6ByoW7A | 明池 | level5566 |
+| 在你和天空之間 | https://www.youtube.com/watch?v=DN7g607jsUE | 合歡山 | level5566 |
 
 
 ----------------------------------------------------------------------
